@@ -1,1 +1,0 @@
-# Banila-Reward-Page-layout
